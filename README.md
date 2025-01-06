@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rtk666a
-- 👀 I’m interested in ... Fore new job 
+- 👀 I’m interested in ... For new job 
 - 🌱 I’m currently learning ... Java 
 - 💞️ I’m looking to collaborate on ... Java
 - 📫 How to reach me ... 7202784860 Aybolrtk@gmail.com
